@@ -1,2 +1,0 @@
-# renzhixiezuo05
-haohaoxuexi
